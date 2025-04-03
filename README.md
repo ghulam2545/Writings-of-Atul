@@ -55,3 +55,5 @@ I found myself in Florida, sitting in a restaurant having brunch and brainstormi
 I was brainstorming new stories to add to my blog, which led me to sleep very late at night. Suddenly, I heard a **cacophony** outside my hotel. I asked the hotel staff about the commotion and was told that it was a **picket** against the **embankment** of rivers, which was destroying the natural flow of the water. Intrigued, I visited the protest site and inquired about the reasons and causes. One of the protestors explained that the government had **expedited** the embankment process, which was ruining the beauty of Florida's rivers. He mentioned that this could cause **enormous** changes in the city and climate, potentially triggering earthquakes. He also shared a personal story: his daughter had been **diagnosed** with waterborne diseases, which he attributed to these structures.
 I had to leave for my next meeting, so I bid him goodbye and promised to write about the issue. As I walked away, a question lingered in my mind: Why can't humans use natural resources without harming them? Why do we always have to alter the way nature works?
 <hr/>
+### Day 18
+<hr/>
