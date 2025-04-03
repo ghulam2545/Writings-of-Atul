@@ -22,8 +22,8 @@ Her words left me questioning: Are we truly living our lives to the fullest?
 I left California and arrived in Delaware, seeking new stories for my blog. I shared a cab with two fellow passengers, who suggested I try **alcopop**, a drink I politely declined due to my non-alcoholic preferences. This sparked an intriguing conversation, revealing the **heinous** truth behind the production of **alcopop**. My companions shared stories of how Black people were forced to work in scorching sunlight for over 18 hours to extract the ingredients, perpetuating a long history of exploitation. They spoke of a disturbing **Zeitgeist**, where alcopop was once seen as a privilege reserved for White people, highlighting the dark history of racial inequality in the country. Despite progress, Black people continue to fight for their rights, and their stories serve as a poignant reminder of the ongoing struggle for true equality.
 <hr/>
 ### Day 8
-**Fetching...**
-It can take some time, please move on next day.
+**Fetching...** <br/>
+It may take some time; please move on to the next day.
 <hr/>
 ### Day 9
 I apologize for being busy over the last three days and not being able to send the blogs as promised. When I arrived in Delaware for work, I had an interesting encounter in the cafeteria while having coffee. I met an Indian guy who was there to design **edutainment** games for infants. He told me that he got the idea from a scene in a Skyoctober movie where someone used **Docusoap** to build a rocket. Our conversation about new technologies was fascinating. He mentioned that many children are becoming **peevish** due to violent games.
