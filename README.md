@@ -1,13 +1,13 @@
 ### Day 1
 I was in New York for look for compelling stories for my blog. After a exhausting flight to New York, I was feeling jet-lagged and in need of relaxation. My friend suggested I go fishing to unwind, but I realized I didn't have any **bait**. I headed to a grocery store to pick some up, but instead of rushing, I decided to **chillax** and take my time. That's when I met a person who was using bait to catch some big ones. We struck up a conversation, and I learned that he ran a website that offered free Groupon deals. What surprised me most was that he'd built a 32 million dollar business without owning any physical properties or offices. It was an exciting conversation that left me feeling inspired and energized.
-***
+<hr/>
 ### Day 2
 I was on the lookout for compelling stories for my blog, as I was set to leave the USA in a **fortnight**. My next destination was Texas, a place that had fascinated me since childhood. I had always been captivated by **fanzines** about the Texas lifestyle and their vibrant culture. During my journey, I was fortunate enough to sit next to a supporting character from the movie The Meanest Man in Texas. This unexpected encounter further awaken my interest in Texas. He shared numerous captivating stories that made Texas sound even more exhilarating than I had imagined. He confirmed that Texas was indeed the **raving** place I had always read about. As we landed and he took his next flight, I felt a surge of excitement. I was about to experience firsthand the vibrant world I had only known through fanzines.
-***
+<hr/>
 ### Day 3
 I stumbled upon a remarkable story in a Texas science laboratory. While searching for inspiring tales for my blog, I met a student who turned **sci-fi** inspiration into reality. They were working on a revolutionary technology to combat **smog** and air pollution, converting it into oxygen - a breakthrough that could potentially make the Martian atmosphere breathable! What struck me was the contrast between our tendency to exploit **loopholes** in our systems and the dedication of these innovators to finding solutions. The student's demo left me amazed, unveiling the vast potential of this trillion-dollar industry. The encounter was a testament to human ingenuity and the power of sci-fi to spark real-world innovation, clearing the smog to reveal a brighter future.
-***
+<hr/>
 ### Day 4
 Journey began, I boarded a train to California in search of fresh stories for my blog. Striking up a conversation with a fellow passenger, we started discussing the merits of **moped** engines. However, the conversation took an unexpected turn when they shared their perceptions of India, describing it as undeveloped and dirty, when I shared that how beautiful we developed India is, it was hard to believe them . They mentioned that certain **telecasts** had perpetuated a negative image of India, which would linger in the minds of Americans, making it challenging to change their perceptions. I listened intently, realizing the power of media telecasts in shaping global opinions and the need to showcase the real India to overcome such **lingering** misconceptions.
 As I reached at my destination, I couldn't help but wonder: "Why don't we showcase the positive aspects of India to the world instead of highlighting our problems? We should focus on solving our issues internally, just like every city in the USA has its own set of challenges, but they don't broadcast them globally."
-***
+<hr/>
