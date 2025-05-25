@@ -439,4 +439,4 @@ I had planned a city exploration trip with a group and was thrilled at the idea 
 On the way back from that trip, his words stayed with me. Maybe our opinions differ, but the concern he raised was real and important. Why do we often focus on creating new barriers in the name of reform, instead of designing inclusive roadmaps that align with the vision of a just and equal India?
 <hr/>
 
-> _The above phrases is written by one of my friend Atul. Surely there will some updates in the upcoming days. For any query or suggestions feel free to write at ```ghulam2545@gmail.com```_
+> _The above phrase is written by one of my friends, **Atul**. Surely there will be some updates in the upcoming days. For any query or suggestions, feel free to write at ```ghulam2545@gmail.com```_
